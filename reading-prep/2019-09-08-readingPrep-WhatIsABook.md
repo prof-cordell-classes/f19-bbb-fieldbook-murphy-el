@@ -1,4 +1,4 @@
-# Reading Prep: THE BOOK
+# Reading Prep: WHAT IS A BOOK?
 
 #### Elaina Murphy
 
