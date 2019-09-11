@@ -8,3 +8,5 @@
 2. Is a book anything that contains knowledge, or is it narrower than that?
 3. Was reading better in the past, or is it all just over-romanticized hyperbole?
 4. How long until the codex becomes obsolete--will nostalgia keep it around for longer?
+5. Is the form of the book always inseperable from the content?
+6. Is new technology destroying the book or enhancing it?
