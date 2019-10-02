@@ -1,0 +1,13 @@
+# Book Project Proposal
+
+#### Elaina Murphy
+
+## Artistry and Engineering
+
+1.  My book will explore the contradiction of artistry versus engineering. It will be a mechanical engineering textbook of sorts with commonly used equations, principles, and diagrams. However, unlike most engineering textbooks it will be a beautiful manuscript filled with illuminated text and diagrams as well as some of the decorative, collage aspects of zines.
+2.  This will be a photo copied and handwritten, bound codex. I will make the drawings and equations first and add some decorative elements in the style of a zine, photocopy these pages, then hand illuminate each copy. 
+3.  I will need to do a lot of practice illuminating text. I am pretty good at drawing designs but have never done anything in the style of an illuminated manuscript before. I will need to learn how to bind my book with a thin cardboard cover, which I believe we are doing next week. I would also love for the cover of the book to be embroidered (I was inspired by a [beautiful copy of The Wizard of Oz](https://www.huffpost.com/entry/book-cover-design-penguin-threads_n_1449012) that I have with an embossed cover that appears to be embroidered). I know how to embroider and have done work on cardboard before but working on paper will be extremely tricky and I will need to practice methods to do it. 
+4.  I'll need some materials for doing the writing and illuminating such as a nice black pen, I was thinking water color pencils, a gold paint pen, and transfer paper (to make multiple similar copies of the illumination)—all of which I should be able to get at Blick. For the zine elements I can hopefully find flowers to dry and cut decorative elements out of magazines. I think I want the pages of my book to be on a slightly thicker stock paper which I can either get myself or might have access to at the Huskiana Press. I believe I have all the materials for embroidery already, I will just need a thin cardboard piece for the cover.
+5.  I won’t need a lot of equipment for this project besides a photocopiers which I can use at Snell with my printing dollars.
+6.  This will be an individual project so it’ll just be me working on it.
+7.  My goal for this book is for it to have around 15 pages and 5 copies. All 5 should be similar but obviously won’t be exactly the same since I’m doing it by hand. Each page should be detailed and neatly done with both engineering diagrams/equations, illumination, and collage elements. The finished book will be polished and clean looking and give an overall impression that care has been taken to create it. 
